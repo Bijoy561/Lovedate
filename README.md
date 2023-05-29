@@ -1,10 +1,10 @@
 # Lovedate♥️
 💋This is my personal site💋
-  👇👇👇👇👇👇👇👇
+          👇👇👇👇👇👇👇
 
 https://t.co/i7bfOuWRTG
 
-      ☝️☝️☝️☝️
+      ☝️☝️☝️☝️☝️☝️☝️
 
 Snapchat browser is not currently support ed  dating
 
